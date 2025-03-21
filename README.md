@@ -1,4 +1,4 @@
-# 👩🏻‍💻 Erika Lessa
+# 👩🏽‍💻 Erika Lessa
 
 **`Desenvolvedora e Analista de dados`**
 
